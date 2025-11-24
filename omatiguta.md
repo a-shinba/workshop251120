@@ -1,1 +1,2 @@
 MBTI:ENTP
+好きな音楽：ENHYPEN
